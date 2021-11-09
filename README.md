@@ -1,1 +1,1 @@
-ao vivo acesse http://popbuzz.rf.gd/
+acesse para ver ao vivo: http://popbuzz.rf.gd/
